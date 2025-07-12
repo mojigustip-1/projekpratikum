@@ -1,3 +1,2 @@
-M.Ojie Gusti Prakasa
-09011282429062
-SKU2B
+
+
